@@ -1,3 +1,0 @@
-# Nexus-brawl-stars-
-@NexusBrawl
-
